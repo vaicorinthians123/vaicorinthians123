@@ -6,4 +6,7 @@ os gaviões nasceram pra poder reivindicar..🖤🤍!
 - ### caso queira entrar em contato comigo 📧
 - 00001102106768sp@al.educacao.sp.gov.br ↪️@park_hyoma
 
+
+![](https://media1.tenor.com/m/Cc_ZjxVZGHUAAAAC/yuri-alberto-rindo-risada.gif
+  )
   
